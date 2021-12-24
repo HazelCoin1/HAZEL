@@ -1,0 +1,2 @@
+# HAZEL
+Digital Social Cryptocurrency
